@@ -1,1 +1,1 @@
-# By Ma_Hunter
+# Check this out www.evil.com
